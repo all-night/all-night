@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @all-night
+- 👀 I’m interested in ...aprender mais sobre tecologia
+- 🌱 I’m currently learning .. pensamento computacional
+- 💞️ I’m looking to collaborate on ..
+- 📫 How to reach me ...41 998350130
